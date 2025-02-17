@@ -134,12 +134,12 @@ Contact
 
 For questions or feedback, please reach out to:
 
-    ELshafey Nadin: Email
+    ELshafey Nadin: nadeinfarid@gmail.com
 
-    SIMEAO Guilhem: Email
+    SIMEAO Guilhem: GuilhemSimeao@gmail.com
 
-    JOSEPH Remy: Email
+    JOSEPH Remy: remy.josephpf@gmail.com
 
-    GOUNOU Rajath: Email
+    GOUNOU Rajath: rajathgounou030@gmail.com
 
-    BUI HUY Huang: Email
+    BUI HUY Huang: canhchimcuajin@gmail.com
