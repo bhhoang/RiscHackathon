@@ -142,4 +142,4 @@ For questions or feedback, please reach out to:
 
     GOUNOU Rajath: rajathgounou030@gmail.com
 
-    BUI HUY Huang: canhchimcuajin@gmail.com
+    BUI HUY Hoang: canhchimcuajin@gmail.com
